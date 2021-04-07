@@ -1,7 +1,9 @@
 # 逐
-高雄中學管樂團　高雄中學校友管樂團　第十四次聯合音樂會
+高雄中學管樂團　高雄中學校友管樂團
+第十四次聯合音樂會
 
-Kaohsiung Senior High School Wind Band & K.S.H.S. Alumni Wind Orchestra 14th Annual Joint Concert
+Kaohsiung Senior High School Wind Band & K.S.H.S. Alumni Wind Orchestra
+14th Annual Joint Concert
 
 ## 音樂會主題
 
