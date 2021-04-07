@@ -1,4 +1,9 @@
-# 音樂會主題
+# 逐
+高雄中學管樂團　高雄中學校友管樂團　第十四次聯合音樂會
+
+Kaohsiung Senior High School Wind Band & K.S.H.S. Alumni Wind Orchestra 14th Annual Joint Concert
+
+## 音樂會主題
 
 今年的音樂會以雄中管樂創團至今的故事進行回顧，希望能將故事承接到明年雄管15週年、雄中百年的慶典。這次音樂會透過現場串場影片及曲目安排，回顧過去、展望未來，來呈現完整的故事，讓團員以及觀眾參與雄管逐漸蛻變的過程。
 
